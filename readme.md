@@ -1,4 +1,4 @@
 # New journey
 
-Yay!
+Ya
 and so excited.😁
